@@ -1,0 +1,1 @@
+# paynexservicosfinanceiros.store
